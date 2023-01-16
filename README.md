@@ -3,14 +3,14 @@ Sabriyah Jessy B. Babul - 9 Arrowsmith
 
 >My hobbies 
 
-1. Call of duty mobiles 
-2. Watching movies 
-3. Travelling 
-4. Swimming in the beach
-5. Spending time with him 
-6. Watching Bucal 
-7. Dressing up 
-8. Doing pageants 
+1.Call of duty mobiles 
+3. Watching movies 
+4. Travelling 
+5. Swimming in the beach
+6. Spending time with him 
+7. Watching Bucal 
+8. Dressing up 
+9. Doing pageants 
 
 >Favorite songs 
 1. Die for you 
