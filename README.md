@@ -12,12 +12,9 @@
 
 1. Die for you 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QLCpqdqeoII" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 2. Glimpse of us
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xuGaLIleROI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 4. Downbad 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e23Gq-TMHEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
